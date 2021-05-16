@@ -1,1 +1,6 @@
-# Project1
+# C H A P. 5
+
+## <center> *AL K O R A N* <center>
+
+---
+they both eat food <sup>2</sup>.  Behold, how we declare unto them the signs *of GOD's unity* ; and then behold, how they turn aside *from the truth*. Say *unto them*, Will ye worship, besides GOD, that which can cause you neither harm nor profit ? GOD is he who heareth *and* seeth. Say, O ye who have received the scriptures, exceed not *the just bounds* in your religion <sup>b</sup>, *by speaking* beside the truth ; neither follow the desires of people who have heretofore erred, and who have seduced many, and have gone astray from the strait path <sup>c</sup>. Those among the children of ISRAEL who believed not, were cursed by the tongue of DAVID, and of JESUS the son of MARY <sup>d</sup>. This *befel them* because they were rebellious and transgressed : they forbade not one another the wickedness which they committed ; and wo *unto them for* what they committed. Thou shalt see many of them take for their friends, those who believe not. Wo *unto them* for what their souls have sent before them <sup>e</sup>, for that GOD is incensed against them, and they shall remain in torment *for ever*. But, if they had believed in GOD, and the prophet, and that which hath been revealed unto him, they had not taken them for *their* friends ; nut many of them are evil doers. Thou shalt surely find the most violent of *all* men in enmity against the true believers, *to be* the Jews, and the idolaters </div>
